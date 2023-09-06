@@ -1,0 +1,2 @@
+# vacati
+bu chotki dastur
